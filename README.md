@@ -1,2 +1,2 @@
-# Perepeliza_E
+# Perepeliza-E
 Перепелица Егор
